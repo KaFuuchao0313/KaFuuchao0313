@@ -1,18 +1,16 @@
 ***NICE TO MEET YOUUUUUUUU!---***
 
-##### Basic Information
-- This is Kje_Axic and the name may be abbreviated to Kaka.
-  - 'フウチアオ' in Japanese and '潮' in Chinese ~
-- To be honest, the only languages I have learnt are just C++ and Python. 
-  - Both of them are not so well >_< <sup>Sadge</sup>
-- A student in Shanghai, China.
-- Regarding other introductions, let's keep secret ~
+- This is Kje_Axic Fuuchao, often in KaF(uuchao).
+- INTJ/ICA/5w6, they may get you some help.
+- Still in school.
+- language supported: C++ & Python
 
-##### About Gaming
-- You can find me in some rhythm games easily ~~since I spend almost all my spare time on them. ~~
-  - Such as **Phigros**, **Project Sekai**, **OSU!**, **Arcaea** and **Ensemble Stars 2**.
-- **Genshin**, **Arknights** and **忘川风华录** online recently too.
-- OH JESUS I have really played so many games.
+- You may find me:
+  - Twitter: 江舟晚报_(@fuuchao1)
+  - Steam: 今日休刊_
+  - QQ：-V-江舟晚报(3550320025)
+  - lofter: 韔韚(http://fanxic404-chao.lofter.com/)
+
 ```
 Not the end,
 and to be continued...
