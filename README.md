@@ -5,11 +5,11 @@
 - Still in school.
 - language supported: C++ & Python
 
-- You may find me:
+- Where you may find me:
   - Twitter: 江舟晚报_(@fuuchao1)
   - Steam: 今日休刊_
   - QQ：-V-江舟晚报(3550320025)
-  - lofter: 韔韚(http://fanxic404-chao.lofter.com/)
+  - lofter: 韔韚.(http://fanxic404-chao.lofter.com/)
 
 ```
 Not the end,
