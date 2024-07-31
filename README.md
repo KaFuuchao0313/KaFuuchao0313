@@ -1,7 +1,7 @@
 ***NICE TO MEET YOUUUUUUUU!---***
 
 - This is Kje_Axic Fuuchao, often in KaF(uuchao).
-- INTJ/ICA/5w6, they may get you some help.
+- INTJ/ICA/5w6, if they can help you anyway.
 - Still in school.
 - language supported: C++ & Python
 
